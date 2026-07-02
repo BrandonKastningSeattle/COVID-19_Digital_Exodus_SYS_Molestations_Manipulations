@@ -1,4 +1,4 @@
-[](https://GodsWrathProductions.org) [1960-DATE]
+1983-DATE; 2015-2016, 2016-2018, 2019-2025, 2025-DATE
 
 "Buy the truth, and sell it not; also wisdom, and instruction, and understanding." - Proverbs 23:23 (KJV)
 
