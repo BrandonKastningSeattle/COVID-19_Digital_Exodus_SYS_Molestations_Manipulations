@@ -52,3 +52,5 @@ And I will put my spirit within you, and cause you to walk in my statutes, and y
 Sources: 
 
 https://www.dal.net/news/shownews.php?id=13
+
+“(A Psalm of David.) Blessed be the LORD my strength, which teacheth my hands to war, and my fingers to fight:” - Psalm 144:1 (KJV)
