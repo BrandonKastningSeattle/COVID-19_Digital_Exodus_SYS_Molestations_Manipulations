@@ -51,4 +51,4 @@ And I will put my spirit within you, and cause you to walk in my statutes, and y
 
 Sources: 
 
-https://www.dal.net/news/shownews.php?id=13"
+https://www.dal.net/news/shownews.php?id=13
