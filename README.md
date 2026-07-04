@@ -23,3 +23,7 @@ I have yet been redeemed! Ensnared at Age 15! Not Intentionally Sinning, Don't W
 “For he cometh in with vanity, and departeth in darkness, and his name shall be covered with darkness.” - Ecclesiastes 6:4 (KJV)
 
 “Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness:” - Mark 7:22 (KJV)
+
+"Revenge is Best Served Cold" - My Father to My Mother before Criminally Seizing her Property from Tort Liability Settlement and Threatening to Burn us Alive if she tried to defend what was rightfully Hers.
+
+“God is jealous, and the LORD revengeth; the LORD revengeth, and is furious; the LORD will take vengeance on his adversaries, and he reserveth wrath for his enemies.” - Nahum 1:2 (KJV)
