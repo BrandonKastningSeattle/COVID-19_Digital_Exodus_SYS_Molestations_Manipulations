@@ -42,3 +42,5 @@ To ALL DIVINE CREATION:
 “But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.” - Isaiah 53:5 (KJV)
 
 “And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able to destroy both soul and body in hell.” - Matthew 10:28 (KJV) 
+
+And I will put my spirit within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do them.” - Ezekiel 36:27 (KJV)
