@@ -19,3 +19,5 @@
 "And it shall come to pass in the last days, saith God, I will pour out of my Spirit upon all flesh: and your sons and your daughters shall prophesy, and your young men shall see visions, and your old men shall dream dreams: " - Acts 2:17 (KJV) 
 
 I have yet been redeemed! Ensnared at Age 15! Not Intentionally Sinning, Don't Want to and Oppressed!
+
+“For he cometh in with vanity, and departeth in darkness, and his name shall be covered with darkness.” - Ecclesiastes 6:4 (KJV)
