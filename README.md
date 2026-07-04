@@ -40,3 +40,5 @@ Feel Free to Assume, Brandon Roger Kastning (Repository Account/Owner is):
 To ALL DIVINE CREATION:
 
 “But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.” - Isaiah 53:5 (KJV)
+
+“And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able to destroy both soul and body in hell.” - Matthew 10:28 (KJV) 
