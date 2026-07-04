@@ -44,3 +44,5 @@ To ALL DIVINE CREATION:
 “And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able to destroy both soul and body in hell.” - Matthew 10:28 (KJV) 
 
 And I will put my spirit within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do them.” - Ezekiel 36:27 (KJV)
+
+"Fear none of those things which thou shalt suffer: behold, the devil shall cast some of you into prison, that ye may be tried; and ye shall have tribulation ten days: be thou faithful unto death, and I will give thee a crown of life.” - Revelation 2:10 (KJV)
