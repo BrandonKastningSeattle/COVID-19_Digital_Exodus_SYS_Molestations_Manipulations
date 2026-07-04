@@ -32,3 +32,7 @@ I have yet been redeemed! Ensnared at Age 15! Not Intentionally Sinning, Don't W
 My Father:
 
 “The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the LORD thy God.” - Deuteronomy 22:5 (KJV)
+
+Feel Free to Assume, Brandon Roger Kastning (Repository Account/Owner is):
+
+“When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)” - Matthew 24:15 (KJV) [Bound by Evil until Adonai YHVH Yeshua Ha-Machiach Redeems Me]
