@@ -36,3 +36,7 @@ My Father:
 Feel Free to Assume, Brandon Roger Kastning (Repository Account/Owner is):
 
 “When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)” - Matthew 24:15 (KJV) [Bound by Evil until Adonai YHVH Yeshua Ha-Machiach Redeems Me]
+
+To ALL DIVINE CREATION:
+
+“But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.” - Isaiah 53:5 (KJV)
