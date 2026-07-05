@@ -54,3 +54,5 @@ Sources:
 https://www.dal.net/news/shownews.php?id=13
 
 “(A Psalm of David.) Blessed be the LORD my strength, which teacheth my hands to war, and my fingers to fight:” - Psalm 144:1 (KJV)
+
+“When a man's ways please the LORD, he maketh even his enemies to be at peace with him.” - Proverbs 16:7 (KJV)
