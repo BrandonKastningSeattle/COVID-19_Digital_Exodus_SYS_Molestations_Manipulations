@@ -58,3 +58,11 @@ https://www.dal.net/news/shownews.php?id=13
 “When a man's ways please the LORD, he maketh even his enemies to be at peace with him.” - Proverbs 16:7 (KJV)
 
 “Pride goeth before destruction, and an haughty spirit before a fall.” - Proverbs 16:18 (KJV)
+
+“And it shall come to pass in the last days, saith God, I will pour out of my Spirit upon all flesh: and your sons and your daughters shall prophesy, and your young men shall see visions, and your old men shall dream dreams:” - Acts 2:17 (KJV)
+
+“And he said, Hear now my words: If there be a prophet among you, I the LORD will make myself known unto him in a vision, and will speak unto him in a dream.” - Numbers 12:6 (KJV)
+
+“Surely the Lord GOD will do nothing, but he revealeth his secret unto his servants the prophets.” - Amos 3:7 (KJV)
+
+(I'm having/been having lots of Visions despite My Sinful Folly and DARPA Complications since 2011-2015 [Jade Helm 15])
