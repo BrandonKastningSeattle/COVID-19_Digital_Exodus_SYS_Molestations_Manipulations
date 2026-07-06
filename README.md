@@ -66,3 +66,27 @@ https://www.dal.net/news/shownews.php?id=13
 “Surely the Lord GOD will do nothing, but he revealeth his secret unto his servants the prophets.” - Amos 3:7 (KJV)
 
 (I'm having/been having lots of Visions despite My Sinful Folly and DARPA Complications since 2011-2015 [Jade Helm 15])
+
+“The word that Isaiah the son of Amoz saw concerning Judah and Jerusalem.” - Isaiah 2:1 (KJV)
+
+“And it shall come to pass in the last days, that the mountain of the LORD'S house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.” - Isaiah 2:2 (KJV)
+
+“And many people shall go and say, Come ye, and let us go up to the mountain of the LORD, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the LORD from Jerusalem.” - Isaiah 2:3 (KJV)
+
+“And he shall judge among the nations, and shall rebuke many people: and they shall beat their swords into plowshares, and their spears into pruninghooks: nation shall not lift up sword against nation, neither shall they learn war any more.” - Isaiah 2:4 (KJV)
+
+“O house of Jacob, come ye, and let us walk in the light of the LORD.” - Isaiah 2:5 (KJV)
+
+“Therefore thou hast forsaken thy people the house of Jacob, because they be replenished from the east, and are soothsayers like the Philistines, and they please themselves in the children of strangers.” - Isaiah 2:6 (KJV)
+
+“Their land also is full of silver and gold, neither is there any end of their treasures; their land is also full of horses, neither is there any end of their chariots:” - Isaiah 2:7 (KJV)
+
+“Their land also is full of idols; they worship the work of their own hands, that which their own fingers have made:” - Isaiah 2:8 (KJV)
+
+“And the mean man boweth down, and the great man humbleth himself: therefore forgive them not.” - Isaiah 2:9 (KJV)
+
+“Enter into the rock, and hide thee in the dust, for fear of the LORD, and for the glory of his majesty.” - Isaiah 2:10 (KJV)
+
+“The lofty looks of man shall be humbled, and the haughtiness of men shall be bowed down, and the LORD alone shall be exalted in that day.” - Isaiah 2:11 (KJV)
+
+“For the day of the LORD of hosts shall be upon every one that is proud and lofty, and upon every one that is lifted up; and he shall be brought low:” - Isaiah 2:12
