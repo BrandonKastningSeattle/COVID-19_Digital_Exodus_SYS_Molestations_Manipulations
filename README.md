@@ -102,3 +102,7 @@ https://www.dal.net/news/shownews.php?id=13
 NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust after her Sexually or in My Mind undress her / supplement for Masturbation! I have and will always Appreciate a Beautiful Damsel and Seek to Marry one!
 
 “And again I say unto you, It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.” - Matthew 19:24 (KJV)
+
+“For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled.” - Revelation 17:17 (KJV) 
+
+“If the Son therefore shall make you free, ye shall be free indeed.” - John 8:36 (KJV)
