@@ -89,4 +89,14 @@ https://www.dal.net/news/shownews.php?id=13
 
 “The lofty looks of man shall be humbled, and the haughtiness of men shall be bowed down, and the LORD alone shall be exalted in that day.” - Isaiah 2:11 (KJV)
 
-“For the day of the LORD of hosts shall be upon every one that is proud and lofty, and upon every one that is lifted up; and he shall be brought low:” - Isaiah 2:12
+“For the day of the LORD of hosts shall be upon every one that is proud and lofty, and upon every one that is lifted up; and he shall be brought low:” - Isaiah 2:12 (KJV)
+
+“And upon all the cedars of Lebanon, that are high and lifted up, and upon all the oaks of Bashan,” - Isaiah 2:13 (KJV)
+
+“And upon all the high mountains, and upon all the hills that are lifted up,” - Isaiah 2:14 (KJV)
+
+“And upon every high tower, and upon every fenced wall,” - Isaiah 2:15 (KJV)
+
+“And upon all the ships of Tarshish, and upon all pleasant pictures.” - Isaiah 2:16 (KJV)
+
+NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust after her Sexually or in My Mind undress her / supplement for Masturbation! I have and will always Appreciate a Beautiful Damsel and Seek to Marry one!
